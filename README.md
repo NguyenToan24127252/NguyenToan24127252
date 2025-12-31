@@ -58,7 +58,7 @@ I'm passionate about software development, learning new technologies, and buildi
 | Channel | Content | Link |
 | :--- | :--- | :--- |
 | 🎥 **Main Channel** | Learning & Tech Tutorials | [Subscribe](https://www.youtube.com/@NguyenToan_dev) |
-| 🏓 **Side Channel** | Table Tennis Passion | [Watch Now](https://www.youtube/@TTlovers-0810) |
+| 🏓 **Side Channel** | Table Tennis Passion | [Watch Now](https://www.youtube.com/@TTlovers-0810) |
 
 ---
 
